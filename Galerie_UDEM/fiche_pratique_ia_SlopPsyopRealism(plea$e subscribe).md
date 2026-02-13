@@ -40,3 +40,9 @@ Le type d'installation est contemplative.
 ![écran](https://github.com/JolLeShmit/H26_V11_inspirations_B-LISLE/blob/main/Galerie_UDEM/media/derriere_oeuvre_ecran.jpeg?raw=true)
 ![mur](https://github.com/JolLeShmit/H26_V11_inspirations_B-LISLE/blob/main/Galerie_UDEM/media/oeuvre.jpeg?raw=true)
 
+
+## Ce qui m'a plu
+l'oeuvre donne une sensation de surcharge information, un peu comme un fil d’actualité. L'oeuvre évoque plusieurs thème et deux d'entre eux de mon point de vue ressort plus que les autres ; le futur et l'adolescence. J'ai vraiment apprécié de comptempler cette oeuvre.
+
+## Aspects que je ne ne souhaite pas retenir pour mes créations
+Je dirais la mise en espace, je n'aime pas ou ils ont situer l'oeuvre par rapport a l'espace dans la pièce.
