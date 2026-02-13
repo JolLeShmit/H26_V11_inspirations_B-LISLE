@@ -22,13 +22,15 @@ Francisco Gonzàlez-Rosas
 ![alt](https://github.com/JolLeShmit/H26_V11_inspirations_B-LISLE/blob/main/Galerie_UDEM/media/cartel_description.jpeg?raw=true)
 
 ## Type d'installation
-Contemplative
+Le type d'installation est contemplative.
 ![alt](https://github.com/JolLeShmit/H26_V11_inspirations_B-LISLE/blob/main/Galerie_UDEM/media/vue_ensemble_proche.jpeg?raw=true)
 
 ## Mise en espace
 ![alt](https://github.com/JolLeShmit/H26_V11_inspirations_B-LISLE/blob/main/Galerie_UDEM/media/croquis.jpeg?raw=true)
 
 ## Composante et technique
+
+
 
 ## Éléments nécessaires à la mise en exposition : mur, structure en métal en soutient, écouteurs, éclairages, écrans, pouffs, socle blanc.
 ![pouffs](https://github.com/JolLeShmit/H26_V11_inspirations_B-LISLE/blob/main/Galerie_UDEM/media/pouffs.jpeg?raw=true)
